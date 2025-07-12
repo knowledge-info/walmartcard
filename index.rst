@@ -4,7 +4,7 @@ Walmart Gift Card Balance Check Without an Account – Quick & Easy Steps
 
 .. image:: get.jpg
    :alt: Walmart Gift Card Balance
-   :target: https://walmart-giftcardbalance.weebly.com/
+   :target: https://pre.im/?kjpyyo1wIHNLv1jT5wo8oSl88PCIIzDRMI8isgAVxeUTmIndW1b5wxZz5ul0hfg
 Why Check Walmart Gift Card Balance Without an Account?
 -------------------------------------------------------
 Walmart Gift Cards are a convenient way to shop in-store or online. But many users want to skip the hassle of registering or logging into an account just to check their card balance.
